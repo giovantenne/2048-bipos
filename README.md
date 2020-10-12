@@ -11,3 +11,4 @@ https://www.youtube.com/watch?v=OgIBSechdYk
 Read mode about BipOS here:
 
 https://myamazfit.ru/threads/bip-mnvolkov-bipos.1010/
+https://myamazfit.ru/threads/bip-prilozhenija-dlja-bipos-elf.1174/
