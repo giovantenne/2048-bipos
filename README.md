@@ -8,7 +8,7 @@ Video:
 
 https://www.youtube.com/watch?v=OgIBSechdYk
 
-Read mode about BipOS here:
+Read more about BipOS here:
 
 https://myamazfit.ru/threads/bip-mnvolkov-bipos.1010/
 
